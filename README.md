@@ -1,1 +1,0 @@
-# A-CRM-application-for-a-chaishop-co
